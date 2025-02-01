@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @HoomanEmpty<br>👀 I’m interested in programing<br>🌱 I’m currently learning IT<br>🤝 ’m currently working on PixelCrafters(coming soon)<br>📫 How to reach me : Email ?<br>😄 Pronouns: He<br>⚡ Fun fact: Today is yesterday of tomorrow, so today is a yesterday
+👋 Hi, I’m @HoomanEmpty<br>👀 I’m interested in programing<br>🌱 I’m currently learning IT<br>🤝 I’m currently working on PixelCrafters(coming soon)<br>📫 How to reach me : Email ?<br>😄 Pronouns: He<br>⚡ Fun fact: Today is yesterday of tomorrow, so today is a yesterday
 
 
 ## 🌐 Socials:
